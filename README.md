@@ -7,7 +7,7 @@
 ## 숙지 사항
 
 - 매주 월요일 밤 11시 이전까지 발표 자료를 [네이버 카페의 스터디룸](https://cafe.naver.com/iamda?iframe_url=/ArticleList.nhn%3Fsearch.clubid=29866621%26search.menuid=13) 에 게시글로 올리도록 한다.
-- 매주 화요일 저녁 7시에 사당역 셀스 스터디룸에서 스터디를 진행한다.
+- 매주 화요일 저녁 7시에 [셀스스터디 사당점](https://sd.sels.co.kr/ContactUs.php)에서 스터디를 진행한다.
 
 ## 스터디 일정
 
